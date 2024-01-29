@@ -3,7 +3,7 @@
 
 About Me:
 
-    Yoga Fan| Gourmet | In the Moment on the Edge | Biodegradable | Travel Enthusiast | Love Advanture and to Try New Things
+    Yoga Fan| Gourmet | In the Moment On the Edge | Biodegradable | Travel Enthusiast | Love Advanture and to Try New Things
 
 ## 👩🏻‍💻 Analytical Study Project 
 
