@@ -24,6 +24,8 @@ About Me:
 - #### Machine Learning
   - 
 
-- #### Time Series forecasting
+- #### Time Series Forecasting
   - 
-
+- #### Data Visualization with Power BI and Tableu
+  -
+  - 
