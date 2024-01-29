@@ -1,5 +1,5 @@
 ## Hi, I'm Haiyan Qin!
-## [A Data Analyst student @ HyperIsland Sweden!](https://www.linkedin.com/haiyanqin)
+## [A Data Analyst Student @ HyperIsland Sweden!](https://www.linkedin.com/haiyanqin)
 
 About Me:
 
